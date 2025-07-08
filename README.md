@@ -10,4 +10,4 @@
 
 本页面专为喜爱国产精品、四虎资源及日本女优内容的用户打造，提供高清在线播放体验。涵盖最新国产与日韩大片，支持在线播放，无需下载，无广告干扰，保证观影流畅。每日更新，为你带来最热的影视资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/no20250708/no2 ）</span>
